@@ -1,0 +1,2 @@
+# jacinto
+Hyacinth /ˈhaɪəsɪnθ/ or Hyacinthus (in Greek, Ὑάκινθος, Hyakinthos) is a divine hero from Greek mythology. His cult at Amyclae, southwest of Sparta, dates from the Mycenaean era. The sanctuary (temenos) grew up around his burial mound (tumulus), located in the Classical period at the feet of Apollo's statue.[1] The literary myths serve to link him to local cults, and to identify him with Apollo.
